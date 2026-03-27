@@ -40,5 +40,5 @@ Here are some of the projects you can find on my GitHub:
 - Grow toward advanced data projects and smarter business tools
 
 ## Let's connect
-- LinkedIn: [Add your LinkedIn link here]
-- GitHub: [Your GitHub profile link]
+- LinkedIn: KHADROUNI ILYAS
+- GitHub
